@@ -1,0 +1,1 @@
+# RES-M-GALER-S-
