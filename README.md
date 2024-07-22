@@ -1,1 +1,1 @@
-# RES-M-GALER-S-
+# Resim-Galerisi
